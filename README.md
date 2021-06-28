@@ -1,0 +1,3 @@
+Hi I am Tyga76 aka Taygan ...
+
+Technologist looking at doing and learning cool new technologies.
